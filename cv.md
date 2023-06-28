@@ -8,10 +8,13 @@
 
 ## **Contact information:** 
 
-## **Phone**:+375 29 3257387
-## **Email**: statirgold@mail.ru
-## **Telegram**: @stupnikof
-## **Discord: DominikStupnikov#1081
+* Location: Minsk,Belarus
+* Phone: +375 29 3257387
+* Email: [statirgold@mail.ru] (statirgold@mail.ru)
+* Telegram: @stupnikof
+* Discord: DominikStupnikov#1081
+* GitHub: [DominikStupnikov] (https://github.com/DominikStupnikov)
+* Instagram: [dominik_stupnikov] (https://www.instagram.com/dominik_stupnikov/)
 
 ## **Briefly About Myself:**
 My name is Dominic, I am 23 years old. I live in Minsk.
